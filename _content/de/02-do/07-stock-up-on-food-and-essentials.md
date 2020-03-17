@@ -4,7 +4,7 @@
 {:.do.no_toc}
 ## Vorräte anlegen: nach und nach und vor allem verantwortungsvoll den Mitmenschen gegenüber
 
-"Einfach weiter so“ ist sicher jetzt nicht die beste Lösung. „Alles kaufen was geht!!!!“ aber auch nicht und kann dir sogar schaden. Warum das so ist und wie Du dich jetzt am besten verhältst erklärt Dr. Emma Hodcroft [hier](https://twitter.com/firefoxx66/status/1233666678841597952?s=20) auf Twitter sehr einleuchtend.
+„Einfach weiter so“ ist sicher jetzt nicht die beste Lösung. „Alles kaufen was geht!!!!“ aber auch nicht und kann dir sogar schaden. Warum das so ist und wie Du dich jetzt am besten verhältst erklärt Dr. Emma Hodcroft [hier](https://twitter.com/firefoxx66/status/1233666678841597952?s=20) auf Twitter sehr einleuchtend.
 
 Es ist gut Vorräte anzulegen. Aber nicht, indem Du jetzt plötzlich alles kaufst was Du in die Finger bekommen kannst. Überleg mal: Wenn das alle machen, gibt es Chaos und die Läden kommen nicht hinterher. Besser: Immer nur ein bisschen mehr kaufen als man braucht. So baust du langsam einen Vorrat zu Hause auf. Und nicht nur Du, auch für die anderen ist genug da. Dann können die Supermärkte die Regale auffüllen.  
  
